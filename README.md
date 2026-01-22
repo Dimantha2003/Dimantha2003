@@ -18,7 +18,7 @@
 
 - 💬 Ask me about **Java**
   
-- ⚡ Fun fact **Call me as DIMA**
+- ⚡ Fun fact **Call me as DIMANTHA**
 
 </td>
 <td width="50%" align="center">
